@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @RebazHawa
-- 👀 I’m interested in ...rebaz
-- 🌱 I’m currently learning ...https://discord.gg/rysXup2whn
-- 💞️ I’m looking to collaborate on ...https://discord.gg/rysXup2whn
+- 👀 I’m interested in ...rebazhttps://discord.gg/rysXup2whn
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+
 - 📫 How to reach me ...romamr
 
 <!---
